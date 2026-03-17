@@ -31,8 +31,7 @@ Fold together all ingredients:
 
 9. Add 1/4 of beaten egg whites into chocolate mixture. Fold through until incorporated – "smear" the spatular across surface to blend white lumps in – aim for 10 folds. 
 
-10.
-Pour chocolate mixture into egg whites. Fold through until incorporated and no more white lumps remain – aim for 12 folds max, but ensure there are no obvious egg white patches.
+10. Pour chocolate mixture into egg whites. Fold through until incorporated and no more white lumps remain – aim for 12 folds max, but ensure there are no obvious egg white patches.
 
 11. Divide mixture between 4 small glasses or pots. Refrigerate for at least 6 hours, preferably overnight.
 
