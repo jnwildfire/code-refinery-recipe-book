@@ -1,15 +1,17 @@
-Ingredients:
-- 3 eggs (~55g/2 oz each)
-125g / 4.5 oz dark cooking chocolate , bittersweet / 70% cocoa (Note 1)
-10g / 0.3 oz unsalted butter
-125 ml cream , full fat (Note 2)
-35 g caster sugar (superfine white sugar)
+# Chocolate Mousse
 
-Decorations:
+# Ingredients:
+- 3 eggs (~55g), separated
+- 125g cooking chocolate , bittersweet / 70% cocoa (Note 1)
+- 10g  unsalted butter
+- 125 ml cream , full fat (Note 2)
+- 35 g caster sugar (superfine white sugar)
+
+# Decorations:
 - More whipped cream
 - Chocolate shavings (Note 3)
 
-Instructions:
+# Instructions:
 
 1. For reliable results, work at a steady pace so your whipped egg whites and cream do not get too warm!
 
